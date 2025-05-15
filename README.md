@@ -1,6 +1,5 @@
 Hi I am Amitava.
-Been Here with lot of excitment to work on new projects
-And to update myself with the time
+Ambitious and driven individual seeking an internship to launch my career. Quick learner with a strong ability to adapt to new situations and challenges. Eager to apply theoretical knowledge, develop practical skills, and contribute to team success. Strong problem-solving skills and a passion for growth. Ready to learn from experienced professionals and make a meaningful impact.
 
 
 
